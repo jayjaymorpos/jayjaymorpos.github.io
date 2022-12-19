@@ -1,2 +1,0 @@
-# jayjaymorpos.github.io
- 
